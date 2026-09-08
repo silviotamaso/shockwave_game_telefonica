@@ -29,3 +29,9 @@ Wanna see my latest developments? Have a look: github.com/silviotamaso
 * * * * *
 
 #Macromedia #Shockwave #Director #Lingo #Game #Statos.com
+
+------------------
+Support us / Apoie
+
+Monero-XMR:
+8Aq9zdppYejQKhANgiENs7caRJhbYhcbh6d27wSwagpsi14SgJ7i362dBNrAjo2LP4hCxJRtUuHoVNyifi2xS3hVUZvHQbP
